@@ -1,2 +1,0 @@
-# PRJCT-BPKRDH
-Student Project
